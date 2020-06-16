@@ -16,3 +16,11 @@ Blinded by his power and might, the foolish Ravan thought no mankind could harm 
 
 ## Conclusion
 No one should boast about his powers and consider others weak. Even a small ant can cause the death of such a huge elephant. Nature plays its own game. It is unparallelled. Mighty lion, The king of the jungle, cannot be defeated by anyone else, but he is preyed  upon by small flies and insects.
+
+The wolf, a little out of breath from running, arrived at Grandma's and knocked lightly at the door.
+
+> "Oh thank goodness dear!  Come in, come in!  I was worried sick that something had happened to you in the forest," said Grandma thinking that the knock was her granddaughter.
+
+The wolf let himself in.  Poor Granny did not have time to say another word, before the wolf gobbled her up!
+
+The wolf let out a satisfied burp, and then poked through Granny's wardrobe to find a nightgown that he liked.  He added a frilly sleeping cap, and for good measure, dabbed some of Granny's perfume behind his pointy ears.
